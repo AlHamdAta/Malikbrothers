@@ -27,13 +27,11 @@ We are selling grocery and flour items before once customer gets our product he 
 
 If you want to checkout our Ata or for asking the rates of Ata and Baasan.
 Contact on:03082166862
+
 Make sure to text on Whatsapp and you'll be answered shortly
 
 ### Installation
-
-Step-by-step instructions on how to install and set up your project. Include code snippets if necessary.
-
-1. Clone the repository:
-   ```bash
-   git clone https://github.com/your-username/your-repository.git
-   
+If you are interested in grocery products come to this location and you'll get all products at reasonable prices.
+https://maps.app.goo.gl/eAqydaaKg9oXzL7K9
+If you are a retailer and have shop in areas:Akhter colony,Jonejo town,Manzoor colony,Kashmir colony.
+Contact us:03363982911
