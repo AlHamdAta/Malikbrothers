@@ -35,3 +35,4 @@ If you are interested in grocery products come to this location and you'll get a
 https://maps.app.goo.gl/eAqydaaKg9oXzL7K9
 If you are a retailer and have shop in areas:Akhter colony,Jonejo town,Manzoor colony,Kashmir colony.
 Contact us:03363982911
+
